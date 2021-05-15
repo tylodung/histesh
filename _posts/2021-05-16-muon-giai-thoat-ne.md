@@ -5,12 +5,10 @@ title: Muốn giải thoát khỏi nghèo khổ hãy nhớ lời Phật dạy
 tags: styling react styled-components
 twitter_large: true
 image: phat-day.jpeg
-custom_excerpt: Ở đời ai cũng muốn mình giàu có, không ai muốn rơi vào cảnh nghèo túng, khó khăn về vật chất. Nhưng không phải muốn là được bởi sự giàu nghèo đều có nguyên nhân của nó cả. Nhiều người thắc mắc vì sao vẫn làm lụng vất vả mà cũng nghèo hoài.
+custom_excerpt: Ở đời ai cũng muốn mình giàu có, không ai muốn rơi vào cảnh nghèo túng, khó khăn về vật chất. Nhưng không phải muốn là được bởi sự giàu nghèo đều có nguyên nhân của nó cả.
 ---
 
 4 nguyên tắc Phật dạy này có thể giúp chúng sinh thoát khỏi sự nghèo túng và quẫn bách.
-
-![kho](https://botatquanam.com/wp-content/uploads/2016/07/thoat-ngheo-640x421.jpg "kho")
 
 Ở đời ai cũng muốn mình giàu có, không ai muốn rơi vào cảnh nghèo túng, khó khăn về vật chất. Nhưng không phải muốn là được bởi sự giàu nghèo đều có nguyên nhân của nó cả. Nhiều người thắc mắc vì sao vẫn làm lụng vất vả mà cũng nghèo hoài. Trong khi những người không làm nhiều lại có của để xài? Và làm sao để thoát nghèo, cải thiện cuộc sống?
 Dưới đây là 4 nguyên tắc Phật dạy để “giải thoát” khỏi sự nghèo khổ mọi người nên biết.

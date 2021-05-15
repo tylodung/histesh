@@ -8,7 +8,6 @@ custom_excerpt: Ai cũng biết nên đánh răng sau giấc ngủ dài và uố
 
 Chúng ta có thói quen là khi tỉnh dậy vào sáng sớm, thì đánh răng, rửa mặt chính là việc làm cần thiết đầu tiên.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/10/1-da-1.jpg "ten buc hinh")
 
 Mọi người cho rằng, cần làm vệ sinh răng miệng sạch sẽ để không còn mùi hôi khó chịu cũng như tiêu diệt hết các vi khuẩn sinh sôi trong suốt quá trình ngủ là việc cần thiết nhất để khởi đầu một ngày mới.
 

@@ -10,7 +10,6 @@ custom_excerpt: Biết cách lắng nghe là một trong những yếu tố quan
 
 Biết cách lắng nghe là một trong những yếu tố quan trọng giúp bạn trở thành một người giao tiếp giỏi. Tuy nhiên, lắng nghe thôi chưa đủ, bạn cũng cần học cách im lặng.
 
-![ten buc hinh](http://www.daotaoquocte.com/wp-content/uploads/2017/08/hoc-cach-im-lang-600x400.jpg "ten buc hinh")
 
 Sẽ có những thời điểm trong cuộc đời bạn cần tới sức mạnh của giọng nói của bạn. Tiếng nói bên trong bạn cần được tôn trọng và biết ơn.
 
