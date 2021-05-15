@@ -3,7 +3,7 @@ published: true
 hidden: false
 title: Bất ngờ chanh lại có nhiều công dụng tới vậy
 image: chanh.jpg
-custom_excerpt: Bạn có biết ngoài làm gia vị hay nước giải khát, chanh còn có rất nhiều công dụng khác ví dụ như chữa bệnh suyễn, tẩy vết ố, bẩn trên quần áo, chất khử trùng tự nhiên…Hãy khám phá những tác dụng tuyệt vời của quả chanh nhé.
+custom_excerpt: Bạn có biết ngoài làm gia vị hay nước giải khát, chanh còn có rất nhiều công dụng khác ví dụ như chữa bệnh suyễn, tẩy vết ố, bẩn trên quần áo, chất khử trùng tự nhiên…
 ---
 
 
