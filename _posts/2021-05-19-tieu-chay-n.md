@@ -15,7 +15,7 @@ Bạn có thể trị bệnh tiêu chảy và làm giảm các triệu chứng c
  
 Dưới đây là 10 cách trị tiêu chảy nhanh và hiệu quả tại nhà.
 
-**1. Sữa Chua***
+**1. Sữa Chua**
 
 Sữa chua, đặc biệt là những loại chứa men sống như lactobacillus acidophilus và bifidobacterium, là một phương thuốc tuyệt vời để chữa bệnh tiêu chảy.
 

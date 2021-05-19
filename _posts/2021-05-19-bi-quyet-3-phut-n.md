@@ -8,7 +8,6 @@ custom_excerpt: Những thói quen chỉ gói gọn trong 3 phút dưới đây 
 
 Những thói quen chỉ gói gọn trong 3 phút dưới đây sẽ đem lại tác dụng tuyệt vời mà nếu bỏ qua bạn sẽ đánh mất cơ hội thay đổi lối sống, cải thiện sức khỏe của mình.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/05/1-2.png "ten buc hinh")
 
 **1. Đi vệ sinh không quá 3 phút**
 
