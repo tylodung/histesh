@@ -15,10 +15,11 @@ Bài thuốc chữa đau răng từ rượu cau bắt nguồn từ thời ông c
 
 Ngày xưa, nhiều người hay nhai trầu, nhờ đó mà răng óng ả, chắc khỏe cho tới tận lúc lâm chung mà không rụng chiếc nào. Từ đó, tác dụng của cau đối với răng lợi được phát hiện.
 
-Ở Việt nam, một số bệnh viện đa khoa và các phòng khám nha khoa cũng thừa nhận rượu cau là một phương pháp trị sâu răng, viêm lợi hiệu quả
+Ở Việt nam, một số bệnh viện đa khoa và các phòng khám nha khoa cũng thừa nhận rượu cau là một phương pháp trị sâu răng, viêm lợi hiệu quả.
+
 Theo các chuyên gia, quả cau có vị chát, cay, tính ẩm, được nghiên cứu là có chứa nhiều chất có tính diệt khuẩn, thanh trùng, chính vì thế quả cau cũng được sử dụng trong việc trị giun sán, làm cho giun sán không bám được vào thành ruột. Rượu trắng có nồng độ cồn cao, có tính sát khuẩn, khi kết hợp với quả cau sẽ làm gia tăng tính diệt khuẩn, đặc biệt tốt trong việc trị sâu răng, làm răng chắc khỏe.
 
-Cách làm rượu cau như sau:
+**Cách làm rượu cau như sau:**
 
 Bổ trái cau làm tư, tách lấy hạt cau (ruột cau), cho vào bình đã đựng sẵn rượu để cau không bị thâm đen. Nếu bổ hạt cau ra mà không ngâm rượu ngay, miếng cau sẽ thâm nhìn không đẹp mắt.
 
@@ -30,7 +31,7 @@ Thành quả ngâm rượu cau.
 
 Bạn tách rượu ra 1 chai để dùng, còn phần ruột cau vẫn tiếp tục ngâm.
 
-Cách dùng rượu cau:
+**Cách dùng rượu cau:**
 
 Sau khi đánh răng sạch, bạn ngậm một chút rượu cau trong 15 phút rồi nhổ đi, sau đó kiêng súc miệng, không uống nước hoặc ăn gì trong 30 phút. Mỗi ngày ngậm rượu cau 2 lần, bạn sẽ không còn đau nhức răng lợi nữa.
 
