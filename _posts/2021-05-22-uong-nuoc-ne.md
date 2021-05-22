@@ -9,7 +9,7 @@ custom_excerpt: Nếu chưa từng có thói quen đó thì bạn nên chuẩn b
 
 ---
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/05/uong-nuoc-dung-cach-1.jpg "ten buc hinh")
+
 
 **2 ly nước sau khi thức dậy**
 
@@ -41,13 +41,13 @@ Tuy nhiên, nếu cơ thể ở trạng thái sau, bạn không nên uống nư�
 
 **Lịch trình uống nước theo bệnh lý, hãy lưu lại và chia sẻ cho mọi người nhé**
 
-1. Người mắc bệnh tim mạch: uống một cốc nước trước khi đi ngủ
+*1. Người mắc bệnh tim mạch:* uống một cốc nước trước khi đi ngủ
 
 Nếu trái tim của bạn không khỏe mạnh, bạn nên nuôi dưỡng thói quen uống một cốc nước trước lúc ngủ. Làm như vậy có thể phòng ngừa những tổn thương vào sáng sớm như các bệnh: nhồi máu cơ tim, đau thắt ngực.
 
 Nhồi máu cơ tim là do độ nhớt trong máu quá cao gây ra. Khi ngủ, do ra mồ hôi hoặc cơ thể bị mất nước dẫn đến giảm lượng nước trong máu, độ nhớt trong máu sẽ vì thế mà tăng cao. Vì thế mới nói, uống một ly nước trước lúc ngủ có thể cứu tính mạng bạn.
 
-2. Tàn nhang, thâm nám: uống một cốc nước đun sôi để nguội vào buổi sáng sớm
+*2. Tàn nhang, thâm nám:* uống một cốc nước đun sôi để nguội vào buổi sáng sớm
 
 Có người uống nước muối, có người uống nước pha với mật ong, có người lại cho rằng uống nước chanh mới làm cho trẻ hóa làn da, vậy uống nước gì mới là tốt nhất?
 
@@ -55,19 +55,19 @@ Cơ thể sau một đêm diễn ra hoạt động trao đổi chất, các ch�
 
 Nếu như nước có chứa chất đường hoặc chất dinh dưỡng khác, khi thâm nhập vào trong cơ thể lại cần thời gian để chuyển hóa. Vì vậy, uống một cốc nước vào buổi sáng có tác dụng bài tiết chất thải trong cơ thể.
 
-3. Cảm cúm: cần uống nhiều nước hơn lúc thường
+*3. Cảm cúm:* cần uống nhiều nước hơn lúc thường
 
 Lúc bạn bị cảm cúm kèm theo triệu chứng sốt, đổ mồ hôi, khó thở, cơ thể cần bổ sung đầy đủ nước để đẩy nhanh sự bài tiết chất thải ra ngoài.
 
 Uống nhiều nước không chỉ thúc đẩy sự ra mồ hôi và tiểu tiện mà còn giúp điều chỉnh nhiệt độ cơ thể, khiến cho virus gây bệnh nhanh chóng bị bài tiết ra ngoài.
 
-4. Đau dạ dày: uống nước cháo dưỡng dạ dày
+*4. Đau dạ dày:* uống nước cháo dưỡng dạ dày
 
 Đối với những người có vấn đề về dạ dày hoặc cảm thấy dạ dày khó chịu nên uống nước cháo “dưỡng dạ dày”.
 
 Vì trong cháo có chứa một lượng nước lớn, có tác dụng bôi trơn ruột, làm sạch các chất độc hại có trong dạ dày, đồng thời thuận lợi để đào thải các chất có hại này ra ngoài cơ thể.
 
-5. Táo bón: uống từng ngụm lớn
+*5. Táo bón:* uống từng ngụm lớn
 
 Có hai nguyên nhân gây ra táo bón: chất thải tích tụ trong cơ thể mà không có nước; hai là cơ quan đường ruột không thể đào thải ra nổi. Nếu là nguyên nhân thứ nhất thì hàng ngày nên uống nhiều nước.
 
@@ -75,13 +75,13 @@ Nếu là nguyên nhân thứ hai thì ngoài việc điều trị thông thư�
 
 Lưu ý, không nên uống từng ngụm nhỏ, như thế nước di chuyển chậm, dễ bị dạ dày hấp thu gây ra tiểu tiện.
 
-6. Buồn nôn: uống nước muối
+*6. Buồn nôn:* uống nước muối
 
 Nếu khi có cảm giác buồn nôn mà rất khó nôn ra, bạn có thể uống nước muối loãng. Uống vài ngụm nước muối sẽ kích thích cơ thể tống các chất bẩn ra ngoài.
 
 Sau khi nôn xong, dùng nước muối súc miệng để tiêu viêm. Ngoài ra, nếu nôn liên tục thì nước muối loãng sẽ là nguồn bổ sung nước hữu hiệu cho cơ thể, giúp cơ thể giảm được sự mệt mỏi.
 
-7. Béo phì: sau bữa ăn nửa tiếng uống một ít nước
+*7. Béo phì:* sau bữa ăn nửa tiếng uống một ít nước
 
 Nếu muốn giảm cân nặng nhưng lại không uống đủ nước thì chất béo trong cơ thể không thể chuyển hóa được, càng làm cho cân nặng tăng thêm.
 
@@ -89,7 +89,7 @@ Chức năng tiêu hóa, chức năng bài tiết đều cần có nước, nh�
 
 Vì thế, sau bữa ăn nửa tiếng, bạn nên uống một ít nước, làm như vậy vừa có thể tăng cường chức năng tiêu hóa, lại có thể giúp bạn giữ dáng vóc.
 
-8. Mất ngủ: massage bằng nước nóng là thuốc an thần tốt nhất
+*8. Mất ngủ:* massage bằng nước nóng là thuốc an thần tốt nhất
 
 Khi cơ thể con người dần đi vào trạng thái giấc ngủ thì cơ thể sẽ bắt đầu quá trình hạ nhiệt. Trong các yêu cầu về môi trường để tốt cho giấc ngủ, môi trường nhiệt độ ấm áp là điều không thể thiếu.
 
@@ -97,7 +97,7 @@ Giống như tắm nước nóng trước khi đi ngủ hay ngâm chân bằng n
 
 Điều đáng nói là, nước đối với cơ thể có tác dụng massage rất độc đáo, vừa nhẹ nhàng, dễ chịu lại thoải mái. Đây là liều thuốc an thần tốt nhất.
 
-9. Buồn bực: uống nước liên tục
+*9. Buồn bực:* uống nước liên tục
 
 Loại chất ảnh hưởng tới trạng thái tinh thần của con người là hormone. Nói một cách đơn giản, hormone chia thành hai loại: một loại tạo ra niềm vui, một loại sinh ra nỗi buồn.
 

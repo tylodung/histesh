@@ -7,7 +7,7 @@ custom_excerpt: Rất đơn giản, chỉ cần chuẩn bị một bình xịt s
 
 ---
 
-Bạn luôn điên tiết với những vết cắn bé xíu của muỗi gây ngứa và khó chịu. Với liều thuốc “thần kỳ “sau, sẽ nhanh thôi bạn không còn nhớ nỗi muỗi cắn là như thế nào.
+Bạn luôn điên tiết với những vết cắn bé xíu của muỗi gây ngứa và khó chịu. Với liều thuốc "thần kỳ" sau, sẽ nhanh thôi bạn không còn nhớ nỗi muỗi cắn là như thế nào.
 
 Bị muỗi cắn là một trong những điều khiến ta khó chịu hơn cả, và nếu không may gặp phải muỗi vằn thì còn nguy hiểm đến sức khỏe bản thân. Và bạn biết không, mùa mưa đang đến rồi, sự sinh sôi của muỗi sẽ ngày càng lộng hành khiến chúng ta khó lòng tiêu diệt chúng hơn. Vì thế, cần cấp bách tìm ra phương pháp để loại trừ loài sinh vật đáng ghét này.
 
