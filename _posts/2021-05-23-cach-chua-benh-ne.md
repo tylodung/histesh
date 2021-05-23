@@ -6,7 +6,6 @@ image: song-khoe.jpg
 custom_excerpt: Hàng ngày có vô vàn những căn bệnh nho nhỏ được chữa bằng mẹo, không cần động đến 1 viên thuốc tây nào. Hãy tham khảo cách chữa 4 loại bệnh tật bằng mẹo không cần thuốc của vị giáo sư đáng kính này.
 ---
 
-![ten buc hinh](http://autoxe.net/wp-content/uploads/2017/10/luu-lai-khi-can-de-dung-cach-chua-46-loai-benh-tat-bang-meo-rat-hay-xin-chan-thanh-c.jpg "ten buc hinh")
 
 **1. Bụi hoặc muỗi bay vào mắt, mắt bị cay xè:**
 

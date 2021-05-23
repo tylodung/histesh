@@ -6,7 +6,6 @@ image: mat-map.jpg
 custom_excerpt: Tuy nhiên, không phải ai cũng có thể dễ dàng loại bỏ mỡ mặt bằng cách tập thể dục. Nhiều người cho biết dù có có tập thể dục nhiều thế nào, họ vẫn không thể giảm béo mặt được, đặc biệt là đám mỡ thừa đáng ghét trên má làm khuôn mặt trở nên phúng phính, tròn trịa.
 ---
 
-Tuy nhiên, không phải ai cũng có thể dễ dàng loại bỏ mỡ mặt bằng cách tập thể dục. Nhiều người cho biết dù có có tập thể dục nhiều thế nào, họ vẫn không thể giảm béo mặt được, đặc biệt là đám mỡ thừa đáng ghét trên má làm khuôn mặt trở nên phúng phính, tròn trịa.
 
 Một vài người có cơ địa rất dễ bị béo mặt. Có nhiều nguyên nhân gây ra béo mặt, có thể là do gen làm cho mỡ thường tập trung trên mặt thay vì những vùng cơ thể khác.
 
@@ -38,7 +37,7 @@ Thực hiện động tác này bất cứ khi nào bạn có thể. Ít nhất 
 
 Bạn có thể mất một khoảng thời gian để quen với bài tập này nhưng khi đã quen và thành thạo, đây sẽ là một trong số những cách hiệu quả nhất để làm giảm béo mặt.
 
-Mím chặt và chu môi
+Mím chặt và chu môi.
 
 Thổi phồng má để vùng trong và dưới đều phồng lên. Giữ tư thế này trong 10s.
 
@@ -60,7 +59,7 @@ Giữ tư thế này trong vòng 30 giây, nghỉ một chút, rồi thở ra, r
 
 Lặp lại 10 cái trong một lần tập.
 
-Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày
+Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày.
  
 **4. Bài Tập “Miệng Cá”**
 
@@ -126,7 +125,7 @@ Mím môi trên và dưới của bạn vào trong cho đến khi bạn thấy c
 
 Giữ tư thế trong vòng 10s, rồi thư giãn.
 
-Lặp lại 20 lần động tác này
+Lặp lại 20 lần động tác này.
 
 Thực hiện động tác này nhiều nhất có thể trong ngày. Ít nhất là hai lần một ngày.
  
