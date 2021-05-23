@@ -1,7 +1,7 @@
 ---
 published: true
 hidden: false
-title: Làm Thế Nào Trị Mụn Trên Da Đầu Nhanh Nhất?
+title: Làm Thế Nào Trị Mụn Trên Da Đầu Nhanh Và Hiệu Quả Nhất?
 image: photo.jpg
 custom_excerpt: Mụn trứng cá có thể xuất hiện trên da đầu tương tự như trên mặt hay các vực khác của cơ thể. Mụn mọc trên đầu quả thực gây khó chịu cho rất nhiều người.
 ---
