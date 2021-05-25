@@ -70,11 +70,11 @@ Nếu bạn ngủ trưa xong mà có cảm giác bị chóng mặt, nhức đầ
 
 Nếu bạn đang phải uống thuốc hạ huyết áp thì không nên ngủ trưa ngay sau đó. Để an toàn, uống thuốc xong nên ngồi nghỉ khoảng từ 15-30 phút mới được nằm ngủ để không ảnh hưởng đến quá trình hấp thụ thuốc và phòng tránh buồn ngủ.
 
-Ngủ dậy cần xoa bóp, uống nước
+*Ngủ dậy cần xoa bóp, uống nước*
 
 Nhiều người ngủ xong dậy sẽ khó chịu, uể oải, đau chỗ này chỗ kia. Sau khi ngủ dậy, bạn nên vận động nhẹ hoặc xoa bóp một chút trước khi làm việc. Đồng thời nên uống bổ sung nước để cơ thể tỉnh táo hẳn, bổ sung nước làm loãng máu, tránh máu vón cục.
 
-Nếu bạn không được ngủ trưa, hãy thử phương pháp này để thay thế
+Nếu bạn không được ngủ trưa, hãy thử phương pháp này để thay thế.
 
 Đây là việc giúp bạn “sạc” năng lượng cho cơ thể nếu bạn không thể ngủ trưa.
 

@@ -30,7 +30,6 @@ Ngoài ra, nó còn có tăng cường lưu lượng tuần hoàn vành, nâng c
 
 Dùng tay xoa bóp hoặc dùng ngải cứu đều có thể kích thích huyệt Quan Nguyên. Để đạt được hiệu quả tốt nhất, bạn nên dùng tay ấn vào vị trí của huyệt hằng ngày trước khi đi ngủ.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/1-1485448781166.jpg "ten buc hinh")
 
 **2. Huyệt Hợp Cốc**
 
@@ -58,7 +57,6 @@ Dùng ngón tay cái ấn vào huyệt Hợp Cốc của bàn tay còn lại, v�
 
 Cần lưu ý rằng, thao tác ấn day huyệt Hợp Cốc không sử dụng đối với phụ nữ đang mang thai.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/hop-coc-1496130847880-1496130881759.jpg "ten buc hinh")
 
 **3. Huyệt Nội Quan**
 
@@ -68,7 +66,6 @@ Theo “Trung y cương mục”, huyệt vị này có tác dụng trị bệnh
 
 Huyệt Nội Quan nằm ở mặt trước cẳng tay, giữa hai gân cơ gan tay lớn và gan tay bé (gấp bàn tay vào cẳng tay và nghiêng bàn tay vào phía trong cho nổi rõ khe cơ), trên nếp gấp khớp cổ tay 2 thốn, mỗi bên một huyệt.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/09/3-1485448789947.jpg "ten buc hinh")
 
 *Công dụng:*
 
