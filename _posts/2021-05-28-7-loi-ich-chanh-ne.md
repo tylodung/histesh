@@ -7,6 +7,7 @@ custom_excerpt: Chanh là một loại gia vị phổ biến được yêu thíc
 ---
 
 Vỏ chanh chứa nhiều Vitamin, khoáng chất và chất xơ giúp tăng cường dinh dưỡng. Trong thực tế, so với nước chanh, vỏ có nhiều Vitamin A và C, Beta-caroten, Folate, Canxi, Magiê và Kali.
+
 Lớp vỏ chanh thậm chí còn có mùi tươi mát rất dễ chịu, có thể thêm hương vị và mùi thơm cho thực phẩm cũng như đồ uống. Nó cũng cung cấp những lợi ích trong việc dưỡng da và vệ sinh gia đình.
 
 Dưới đây là các ứng dụng tuyệt vời của vỏ chanh ít được biết đến.
@@ -41,7 +42,7 @@ Cho 1 muỗng canh vỏ chanh thái mỏng (loại bỏ cùi xốp) vào cốc.
 
 Đậy lại và để cho nó ngấm trong 10 phút.
 
-Lắc đều
+Lắc đều.
 
 Thêm mật ong và khuấy kỹ.
 
@@ -67,7 +68,7 @@ Nó đặc biệt hiệu quả trong việc làm sạch cửa sổ kính, gươn
 
 Cho một vài miếng vỏ chanh rửa sạch, thái nhỏ vào một cái lọ thủy tinh sạch.
 
-Đổ giấm trắng vào đầy bình
+Đổ giấm trắng vào đầy bình.
 
 Đặt nắp đậy và giữ bình lên vách cửa sổ dưới trời nắng trong 2-3 tuần, thỉnh thoảng lắc nó.
 
