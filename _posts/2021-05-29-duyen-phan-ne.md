@@ -5,7 +5,7 @@ image: duyen-phan.jpg
 
 Mỗi người ta gặp trong cuộc đời đều là duyên, nếu tình duyên lận đận nhất định đừng bỏ lỡ bài này!
 
-![ten buc hinh](http://st.phununews.vn/staticFile/Subject/2017/05/04/5851510/duyen-phan-la-thu-rat-la-ki-khong-co-y-theo-duoi-thi-co-bo-tam-co-gang-lai-chang-thanh_4158683.jpg "ten buc hinh")
+
 
 Hãy luôn nhớ rằng, hôm nay có duyên phận không có nghĩa là vĩnh viễn có duyên phận, mọi thứ thay đổi không ngừng…
 
@@ -23,7 +23,6 @@ Khi người này đến lúc phải xuống xe… Dù cho không nỡ cũng nê
 
 *Nhân duyên theo lời Phật dạy sâu sắc mà giản đơn, để chúng ta được yêu và hiểu ấm lạnh đời người, không tham luyến, không hờn trách, từ bỏ khổ đau, buông tay khi duyên cạn…*
 
-![ten buc hinh](http://st.phununews.vn/staticFile/Subject/2017/05/04/5851510/clip_image001.jpg "ten buc hinh")
 
 **Hãy nhớ:**
 
