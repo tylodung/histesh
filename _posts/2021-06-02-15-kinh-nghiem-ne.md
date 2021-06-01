@@ -35,7 +35,7 @@ Lùi một bước biển rộng trời cao, do đó đối với tiểu nhân p
 
 Người khác yêu thương mình là có nguyên nhân, đừng hỏi tại sao, khi tiếp nhận phải dùng yêu mến nhiều hơn để hồi báo họ. Thế nhưng, đừng bao giờ lừa gạt tình cảm của người khác, cho dù bạn không thích, cho dù người ta có khuyết điểm. Đây là tài phú mà bạn có dùng tiền cũng không mua được.
 
-**Kinh nghiệm 8: Học cách cầm lên được, hạ xuống được***
+**Kinh nghiệm 8: Học cách cầm lên được, hạ xuống được**
 
 Chúng ta cần phải có thể buông bỏ, đồng thời phải có một tâm thái bình thản. Khi tâm trạng không tốt chính là lúc bạn đang trong vòng luẩn quẩn của phiền toái, dằn vặt… Kỳ thực sự tình cũng không đến nỗi xấu tệ như bạn nghĩ đâu. Đường đời của ai cũng có lúc cao điểm, có lúc xuống thấp điểm, căn bản không có cuộc đời luôn thuận buồm xuôi gió. Phải học được cách cầm lên được và hạ xuống được.
 
