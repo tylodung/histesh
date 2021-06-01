@@ -8,7 +8,6 @@ custom_excerpt: Ăn mộc nhĩ sẽ giúp ngăn chặn được bệnh tắc ho�
 
 Nấm mèo còn gọi là nấm tai mèo, mộc nhĩ, có tên khoa học là Auricularia auricula, thường mọc trên cây gỗ mục ẩm ướt, hình nấm giống tai người vì vậy gọi là mộc nhĩ (tai của gỗ).
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/10/1107-2T.png "ten buc hinh")
 
 Theo Đông y, nấm mèo vị ngọt tính bình, đi vào các kinh tỳ vị, đại tràng, can, thận. Tác dụng làm mát máu, làm ngừng chảy máu do va đập, bị thương. Chữa trị các bệnh trường phong hạ huyết, nhuận táo, lợi trường vị, lỵ ra máu, đái dắt, đái ra máu, trị lở, bổ khí, bền cơ, hoạt huyết.
 
