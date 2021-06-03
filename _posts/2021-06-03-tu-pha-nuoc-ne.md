@@ -3,7 +3,7 @@ published: true
 hidden: false
 title: Tự pha nước uống buổi sáng giúp đánh bay BỤNG BIA lâu năm
 image: bung-bia.png
-custom_excerpt: Bụng là vùng dễ tích mỡ nhất và cũng là bộ phận ít hoạt động nhất của cơ thể. Chính bởi vậy khi béo, bụng thường tăng size đầu tiên. Các nguyên nhân gây béo bụng rất đa dạng nhưng chủ yếu do chế độ ăn không hợp lý, ăn quá nhiều tinh bột và đường, lười vận động, phụ nữ sau sinh nở…
+custom_excerpt: Bụng là vùng dễ tích mỡ nhất và cũng là bộ phận ít hoạt động nhất của cơ thể. Chính bởi vậy khi béo, bụng thường tăng size đầu tiên.
 ---
 Không mời mà đến, nhưng đuổi không chịu đi, mỡ bụng tích tụ lâu năm rất khó loại bỏ, bởi theo thời gian, mô mỡ sẽ tích tụ dày lên, tạo thành màng bám mỡ nên bụng cũng to lên. Các liên kết mỡ nằm sâu gắn chặt với nhau.
 
@@ -87,11 +87,11 @@ Cho thêm mật ong. Uống nước này một giờ trước bữa ăn sáng.
 
 Nguyên liệu:
 
-Giấm táo
+Giấm táo.
 
-Một quả chanh
+Một quả chanh.
 
-Bột quế
+Bột quế.
 
 Mật ong.
 
