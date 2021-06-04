@@ -10,7 +10,6 @@ custom_excerpt: Con người khác nhau và hơn nhau không phải ở dung m�
 
 Con người khác nhau và hơn nhau không phải ở dung mạo, tiền tài mà chính ở sự tu dưỡng trong đời người.
 
-![ten buc hinh](https://vietnammoi.vn/stores/news_dataimages/nhungth/012019/02/09/8-chu-quan-trong-nhat-doi-nguoi-ai-cung-nen-biet-de-tu-duong-ban-than-24-.4189.jpg "ten buc hinh")
 
 **NHẪN (Nhẫn nại, nhẫn nhịn)**
 
