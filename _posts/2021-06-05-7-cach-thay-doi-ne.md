@@ -1,7 +1,7 @@
 ---
 published: true
 hidden: false
-title: Những cách thay đổi số phận
+title: Những cách thay đổi số phận đời người
 tags: styling react styled-components
 twitter_large: true
 image: max.jpg
