@@ -7,7 +7,6 @@ Học hỏi 10 kinh nghiệm quý báu dưới đây của những người đi 
 
 1. Người không thể chiến thắng khó khăn trước mắt, vĩnh viễn sẽ không có cơ hội hưởng thụ hy vọng và vinh quang trong tương lai.
 
-
 2. Trong cuộc sống, có không ít những kẻ kiêu ngạo, thích chèn ép người khác. Trong mắt họ, bạn dù làm gì cũng vẫn bị coi là thiếu hiểu biết.
 
 Vì thế, không cần thiết phải giả bộ trước mặt người khác, càng không nên tự coi nhẹ bản thân, chỉ cần nỗ lực sống tốt với con người thật của chính mình là đủ.
@@ -15,8 +14,6 @@ Vì thế, không cần thiết phải giả bộ trước mặt người khác,
 3. Hãy cố gắng duy trì một cuộc sống tràn đầy năng lượng, đừng để những thiếu thốn về vật chất đánh gục ý chí chiến đấu của bạn.
 
 Có nhiều người sở hữu những khởi điểm tốt hơn ta rất nhiều, nhưng cũng có không ít người có tiền đề chưa bằng ta, cho nên đừng vội khóc lóc, cũng đừng oán thán, hãy dựa vào chính những gì mình có để phấn đấu, nỗ lực không ngừng.
-
-
 
 4. Quản lý tốt cái miệng của chính mình, điều gì không nên nói tốt nhất đừng nói. Điều này càng phải làm cho tốt khi ta tức giận.
 
@@ -31,8 +28,6 @@ Trong thời đại này, chớ đem chuyện riêng tư lên internet để là
 8. Vào mỗi thời điểm cảm thấy cô đơn, thay vì chịu đựng một mình, hãy nhấc điện thoại lên và gọi điện cho tri kỷ của bạn. Chỉ có những lúc bên nhau như vậy, mối quan hệ của bạn với họ mới có thể bền lâu.
 
 9. Thời gian là kho báu quý giá cần phải trân trọng từng giây từng phút. Đừng tiêu phí quá nhiều thời gian của mình vì hư vinh hoặc vì những "khách qua đường" trong cuộc đời bạn. Càng khiến mình bận rộn vì những điều như vậy, tâm hồn của bạn sẽ ngày càng trở nên trống rỗng.
-
-
 
 Cuộc đời rất ngắn ngủ, đừng để bản thân "sống nhầm" cuộc đời của ai khác. Hãy nỗ lực sống là mình một cáh tích cực và tự hào. 
 

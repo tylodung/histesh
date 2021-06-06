@@ -20,7 +20,6 @@ Làm người hãy lấy sự chân thành mà đối đãi với nhau, hành x�
 
 Thuận theo nhân duyên và đạo Trời, một lòng hướng thiện, đãi người bằng tấm chân tình, bạn sẽ nhận ra cuộc sống này tràn đầy ý nghĩa, tỏa sáng như ánh mai chiếu rọi trên những bông tuyết trong trẻo giữa trời đông.
 
-![ten buc hinh](https://static.phunugiadinh.vn/wp-content/uploads/2017/08/tuy-duyen1-700x366.jpg "ten buc hinh")
 
 **Vậy nên, trên đời vạn sự là tùy duyên, còn đây là 7 điều bạn nên ghi nhớ để có được một đời hưởng phúc dài lâu:**
 

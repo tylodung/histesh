@@ -5,7 +5,6 @@ image: 2-nam.jpg
 
 Câu chuyện 2 người đàn ông tranh cãi về phép toán 4×4 bằng 16 hay 17 khiến nhiều người phải suy ngẫm. Chỉ một câu chuyện đó thôi cũng đã đủ là một bài học lớn cho mỗi người, học cho mình cách sống, cách im lặng và cách lắng nghe.
 
-![ten buc hinh](http://2.tinhhoa.net/wpcontent/uploads/2014/08/135.jpeg "ten buc hinh")
 
 Ngày ta chập chững lò dò tập đi, ta được học nói. Gọi mẹ, gọi cha, đòi ăn, đòi chơi,…ta đặt câu hỏi, ta giãi bày lòng mình, ta chia sẻ học thức. Nhưng rồi, cái miệng cũng bắt đầu biết buông lời nói dối, lời cay đắng, lời nóng giận để biến mỗi lời thành lưỡi dao nhọn sắc.
 
@@ -13,9 +12,8 @@ Nhà văn, tác giả tiểu thuyết Nhà Giả Kim nói: “Những thứ vào
 
 Chúng ta đã học nói, phải chăng đến lúc chúng ta cũng phải học cách lặng im. Chúng ta lặng im để không làm tổn thương người khác, không gây nghi kỵ lẫn nhau; để không phàn nàn, không phán xét, không chì chiết; để không nói ra những lời giả dối, sáo rỗng; để không khiến người ta nổi giận; để không mang những tiếng xấu gieo rắc trong đời. Cuộc đời đã là bể khổ với đủ rối ren rồi, chúng ta học im lặng, đừng bới móc rác rưởi nữa để học cách ngắm hoa nở xinh tươi.
 
-Chúng ta không cần phải cố công cố sức nói với một người rằng 4 x 4=16 nếu như người ta tin vào kết quả khác của riêng họ mà không muốn nghe. Chúng ta thắng cũng chẳng ích gì?
+Chúng ta không cần phải cố công cố sức nói với một người rằng 4 x 4 = 16 nếu như người ta tin vào kết quả khác của riêng họ mà không muốn nghe. Chúng ta thắng cũng chẳng ích gì?
 
-![ten buc hinh](http://2.tinhhoa.net/wpcontent/uploads/2014/08/21003.jpg "ten buc hinh")
 
 Trong mọi mối quan hệ, chiến thắng một cuộc tranh cãi cũng là chúng ta đã thua, thua vì có thể dẫn đến sự bất hòa giữa hai người. Đúng sai ra sao, rồi cuộc đời sẽ dạy cho họ, không sớm thì muộn họ sẽ nhận ra được bài học của mình.
 
@@ -27,7 +25,6 @@ Tạo hóa rất công minh khi sinh ra hai mắt để nhìn cho thấu, hai ta
 
 Tai con người rất lạ, nó chỉ thích vểnh lên nghe tiếng trên cao mà lờ đi âm thanh dưới thấp. Người đặt bản ngã mình cao hơn người khác sẽ chẳng thể nghe được gì, chẳng học được gì mà cứ lẩn quẩn trong u minh mãi.
 
-![ten buc hinh](http://2.tinhhoa.net/wpcontent/uploads/2014/08/3773405237_507c625748_b.jpg "ten buc hinh")
 
 Tai con người cũng rất kỳ, nó hướng ra nghe bên ngoài mà quên nghe tâm mình, quên tiếng nói của lương tâm đang gào thét. Nó chỉ thích nghe lời hay, những bóng bẩy sáo rỗng mà không biết nghe lời ngay thẳng, dù đó là sự thật đắng hơn thuốc. Nó thích nghe lời khen mà bỏ qua lời chê chân thành góp ý. Phải chăng, học im lặng rồi, ta vẫn cần phải học lắng nghe.
 
