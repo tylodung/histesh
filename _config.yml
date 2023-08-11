@@ -3,7 +3,7 @@ title: "Việc Tốt"
 url-title: "Việc Tốt"
 description: "Bí quyết nội trợ."
 paginate: 100
-url: "https://histesh.site"
+url: "https://tesh.site"
 permalink: /:year/:month/:title/
 include: ['_headers']
 future: false
